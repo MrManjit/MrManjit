@@ -3,7 +3,7 @@
 
 
 ## 🚀 About Me
-I'm an Product Associate and Data Analysis Enthusiast
+I'm an Product Associate and Data Science Enthusiast
 
 
 ## 🔗 Links
