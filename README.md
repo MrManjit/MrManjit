@@ -1,6 +1,6 @@
 # 👋 Hi, I'm Manjit Singh
 
-🚀 **Product Professional | IoT & Web Developer | Aspiring Associate Product Manager**
+🚀 **Associate Product Manager**
 
 ---
 
